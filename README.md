@@ -14,4 +14,4 @@
    
 [Avengers:Endgame] (//www.youtube.com/watch?v=TcMBFSGVi1c)
 
-![This is te poster of Avengers:Endgame] (![Uploading download.jpg…)
+![This is the poster of Avengers:Endgame] (![Uploading download.jpg…)
