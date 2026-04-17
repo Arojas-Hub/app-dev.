@@ -11,5 +11,7 @@
 1. The storylines, particularly the sacrifice of Iron Man or the personal journey of Captain America, provide a bittersweet, deeply emotional experience.
 2. The combination of top-tier heroes like Iron Man (intelligence/charisma), Captain America (humanity/leadership), and Thor (power) creates a perfect, balanced team.
 3. Watching heroes with distinct personalities come together to create "collaborative magic" makes for a superior cinematic experience.
+   
 [Avengers:Endgame] (//www.youtube.com/watch?v=TcMBFSGVi1c)
+
 ![This is te poster of Avengers:Endgame] (![Uploading download.jpg…)
